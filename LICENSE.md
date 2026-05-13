@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu shenanigans like never before with new jujutsu shenanigans Scripts, the #1 Script. Includes silent aim and no cooldown for
 
 
 
